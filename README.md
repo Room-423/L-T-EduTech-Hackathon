@@ -1,1 +1,1 @@
-# L-T-EduTech-Hackathon
+# L&T-EduTech-Hackathon
